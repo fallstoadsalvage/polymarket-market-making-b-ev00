@@ -1,4 +1,4 @@
-# 
+# vip Polymarket Plugin | high-frequency-trading + decentralized-trading offers the most advanced Polymarket plugin, with high-frequency-trading and decentralized-trading. Ideal for
 
 
 
